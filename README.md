@@ -7,5 +7,6 @@ and if posiible also make the crs which can operate in the two road i.e cars tha
 
 
 
-also make the improve the online class point platform 
+also make the improve the online class point platform  ( the grade buddy 35 [ i will change the name of it later }) 
+
 
