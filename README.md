@@ -13,4 +13,8 @@ also make the improve the online class point platform  ( the grade buddy 35 [ i 
 make an improvised version of linkedin 
 
 
+edit music in spotify 
+
+
+
 
