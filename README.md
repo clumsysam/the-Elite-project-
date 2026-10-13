@@ -16,5 +16,11 @@ make an improvised version of linkedin
 edit music in spotify 
 
 
+work on the nimoz closet 
+
+
+
+
+
 
 
