@@ -13,7 +13,8 @@ also make the improve the online class point platform  ( the grade buddy 35 [ i 
 make an improvised version of linkedin 
 
 
-edit music in spotify 
+edit music in spotify or just create your music app an dyou can sell it if possible 
+
 
 
 work on the nimoz closet 
