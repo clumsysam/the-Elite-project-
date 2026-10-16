@@ -21,6 +21,13 @@ work on the nimoz closet
 
 
 
+make a transort company with dad and talk to him 
+
+
+my main thing is to make my family one of the biggest company in the world if possible 
+
+
+
 
 
 
