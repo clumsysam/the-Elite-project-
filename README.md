@@ -17,7 +17,7 @@ edit music in spotify or just create your music app an dyou can sell it if possi
 
 
 
-work on the nimoz closet 
+work on the nimoz closet ( in short start on a clothing brand ) 
 
 
 
